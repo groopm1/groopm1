@@ -1,0 +1,4 @@
+- Hi, my name is Felipe
+- I like hardware and software stuff
+- Currently studying Computer Engeneering at UNIVALI, Brasil
+- If, for some reason, you want to reach me -> feliperibeiromachado1401@gmail.com
